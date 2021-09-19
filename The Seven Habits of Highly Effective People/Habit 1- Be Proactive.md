@@ -16,7 +16,9 @@
 
 **What is Proactivity?** 
 
-* As human beings, we have 1) the responsibility for our own lives, 2) subordinate our feelings to "carefully thought about, selected and internalized values"
+* Being proactive means: 1) having the responsibility for our own lives, 2) subordinate our feelings to "carefully thought about, selected and internalized values"
+* Proactive people's behavior is the product of their own choice, based on values, as opposed to a product of conditions, based on feelings.
+
 * If we are instead reactive: 1) we choose to forfeit the responsibility for our own lives, 2) we empower conditioning and conditions to control our behavior, 3) our behavior is the product of feelings rather than values
 
 * I don't want my actions to be controlled by how others treat me. I can choose not to be miserable. This is not like psyching myself up and letting the other person have his way, but rather doing this to gain freedom so that I will no longer be controlled by the actions of others (which I have no control).
